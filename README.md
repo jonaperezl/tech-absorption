@@ -1,1 +1,1 @@
-# tech-absorption
+# Tech Absorption and International Orientation
